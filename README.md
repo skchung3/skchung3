@@ -1,1 +1,1 @@
-Snag Kyung Chung ops435 NCC
+Sang Kyung Chung ops435 NCC
